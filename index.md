@@ -1,3 +1,4 @@
-## Welcome to GitHub Pages
+## DAPPER HOUSE
 
-You can use the [editor on GitHub](https://github.com/Dapper-House/dapper-house.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+We are coming soon! 
+Please visit [our Facebook page](https://www.facebook.com/DapperHouseMen/) to get th lastest updates.
